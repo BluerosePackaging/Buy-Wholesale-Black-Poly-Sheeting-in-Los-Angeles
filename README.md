@@ -54,7 +54,7 @@ Buying heavy duty black poly sheeting is essential for applications that require
 
 ### Heavy-Duty Features
 
-- Extra thick and मजबूत construction  
+- Extra thick and hard construction  
 - High tear and puncture resistance  
 - Suitable for demanding environments  
 - Long-lasting durability  
